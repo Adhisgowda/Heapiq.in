@@ -1,4 +1,4 @@
-# HEAPIQ 🚑  
+# HEAPIQ 
 **Made for India, Made for Rich-Hearted Poor People of India**
 
 ---
