@@ -16,7 +16,7 @@
 
 ## 👤 Founder  
 **Adithya H S**  
-- Contact: +91 8431137425
+- Email: adithyahs161@gmail.com
 - Final-Year BBA Candidate  
 - PUC PCMC Background  
 - Dream: Digitally transform Indian healthcare for accessibility, trust, and efficiency.  
