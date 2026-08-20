@@ -1,5 +1,5 @@
 # HEAPIQ 
-**Made for India, Made for Rich-Hearted Poor People of India**
+**Made for India, Made for Rich-Hearted People of India**
 
 ---
 
